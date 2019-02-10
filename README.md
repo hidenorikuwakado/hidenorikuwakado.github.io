@@ -1,1 +1,1 @@
-# Hidenori Kuwakado
+# Working Log by Hidenori Kuwakado
