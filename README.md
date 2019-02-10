@@ -1,1 +1,1 @@
-# hidenorikuwakado.github.io
+# Hidenori Kuwakado
